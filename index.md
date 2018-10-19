@@ -1,3 +1,9 @@
-## Welcome to Internet!
+# Welcome to the thunder dome.
 
-#Edit all of the things! I'm pushing updates like nobody's business!v1
++++
+ 
+ October 18, 2018
+###   Cool cool cool, tight tight tight.
+Hello World?
+[^Henlo.]
+
